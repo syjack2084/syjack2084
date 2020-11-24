@@ -4,5 +4,5 @@
 - 🌱 I’m currently learning nervous system
 - 🤔 I’m looking for help with PK studies
 - 📫 How to reach me: Github
-- ⚡ Fun fact: Love Dr. house
+- ⚡ Fun fact: Love Dr. House
 
